@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with quantitative Polymarket Algorithm | decentralized-trading + backtesting, the #1 algorithm. Includes decentralized-trading and backtesting for
 
 
 
